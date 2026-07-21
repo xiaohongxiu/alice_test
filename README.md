@@ -1,127 +1,4 @@
-20260919
-
-10:00
-第6周一
-第六周·周一
-
-晨兴喂养
-Morning Nourishment
-
-约十四 6 “…我就是道路、实际、生命；若不借着我，没有人能到父那里去。”
-John 14:6 …I am the way and the reality and the life; no one comes to the Father except through Me.
-
-23 “…人若爱我，就必遵守我的话，我父也必爱他，并且我们要到他那里去，同他安排住处。”
-23…If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an abode with him.
-
-约翰著作的主题是三一神把祂自己分赐到祂选民里面，作生命和生命供应，使他们都成为神圣的，完满地彰显祂直到永远。
-The subject of John’s writings is the Triune God dispensing Himself into His chosen people as the life and life supply to make them all divine to express Him in full for eternity.
-
-整个宇宙的实际、中心和内容，就是三一神—父、子、灵—要把祂自己分赐到祂的选民里面，作他们的生命和生命的供应，使他们成为神圣的，完满地彰显祂直到永远。
-The reality, the center, and the content of the entire universe is that the Triune God—the Father, the Son, and the Spirit—wants to dispense Himself into His chosen people as their life and life supply to make them divine to express Him in full and for eternity.
-
-这也该是我们的中心、实际和内容（李常受文集一九八三年第二册，三○九至三一○页）。
-This should also be our center, our reality, and our content. (CWWL, 1983, vol. 2, “The Divine Dispensing of the Divine Trinity,” p. 237)
-
-信息选读
-Today's Reading
-
-约翰十四章六至二十四节…启示，在神圣行动里，以及在我们经历里的神圣三一。
-The Divine Trinity in the divine move and in our experience is revealed… in John 14:6-24…
-
-六节…给我们看见，信徒借着子到父那里去—父是信徒的标的。
-Verse 6 shows that the believers come to the Father through the Son—the Father being the object of the believers.
-
-十四至十六章记载主在地上与祂门徒最后一次的谈话。
-John 14—16 records the last conversation that the Lord had with His disciples while He was on this earth.
-
-在这最后的谈话中，祂指明祂所有的信徒都应当寻求父。
-In His last talk to them He indicated that all His believers should seek after the Father.
-
-换句话说，他们应当以父为他们的标的。
-In other words, they should take the Father as their object.
-
-我们若要达到父这标的，必须借着那是道路的子才能达到。
-If we are going to reach the Father as our object, we must reach Him through the Son, who is the way.
-
-十四章七至十四节给我们看见，父化身子里，显于信徒中间—子在信徒中间，乃是父的化身。
-Verses 7 through 14 [of John 14] show the Father embodied in the Son seen among the believers—the Son being the Father’s embodiment among the believers.
-
-在这些经文里，主给我们看见，祂在父里面，父也在祂里面。
-In these verses the Lord showed us that He is in the Father and that the Father is in Him.
-
-子与父原是一，祂们是互相内住的。
-The Son and the Father are one. They mutually indwell each other.
-
-子住在父里面，父也住在子里面。
-The Son dwells in the Father, and the Father dwells in the Son.
-
-这样，子在信徒中间乃是父的化身。
-In this way the Son was the Father’s embodiment among the believers.
-
-十五至二十节继续给我们看见，子实化成为那灵，住在信徒里面—那灵是子的实化，住在信徒里面。
-Verses 15 through 20 go on to show us the Son realized as the Spirit abiding in the believers—the Spirit being the realization of the Son abiding in the believers.
-
-父化身在子里，子实化成为那灵。
-The Father is embodied in the Son, and the Son is realized as the Spirit.
-
-子是父的化身，只在信徒中间；但那灵是子的实化，如今却住在信徒里面。
-The Son as the Father’s embodiment was only among the believers, but the Spirit as the realization of the Son is now abiding within the believers…
-
-现今我们既有那灵作子的实化，住在我们里面，我们也就有父的化身，以及父作我们的标的。
-Now that we have the Spirit as the realization of the Son abiding in us, we also have the Father’s embodiment and the Father as our object.
-
-事实上，父作我们的标的是在我们里面，因为这标的是化身在子里，子且实化成为那灵，住在我们里面。
-Actually, the Father as our object is within us, because the object is embodied in the Son and the Son is realized as the Spirit who indwells us.
-
-我们若有那灵就有子，我们若有子就有父。
-If we have the Spirit, we have the Son, and if we have the Son, we have the Father.
-
-因此，神圣三一的三者都在我们里面。
-Thus, the three of the Divine Trinity are in us.
-
-父是标的，子是化身，那灵乃是实化；这三者都在我们这些容器里面。
-The Father as the object, the Son as the embodiment, and the Spirit as the realization are in us, the container…
-
-标的、化身和实化乃是在我们这些瓦器里面超越的宝贝（林后四 7）。
-The object, the embodiment, and the realization are the excellent treasure in us, the earthen vessels (2 Cor. 4:7).
-
-我们是瓦器，盛装着有三面讲究的超越神性。
-As earthen vessels, we contain the excellent deity in three aspects.
-
-约翰十四章二十一和二十三节给我们看见，子向爱祂的人显现，以及父与子同来，同爱子的人安排住处。
-Verses 21 and 23 of John 14 show the Son manifesting Himself to His lover and the Father coming with Him to make an abode with the Son’s lover.
-
-那灵住在我们里面之后，子就亲自向爱祂的人显现。
-After the abiding of the Spirit in us, the Son will manifest Himself to His lovers.
-
-一个人有可能是耶稣基督的信徒，却不是爱祂的人。
-It is possible to be a believer of Jesus Christ but not be a lover of Him.
-
-当我们信祂的时候，神圣三一的三者就都来住在我们里面。
-When we believe in Him, the three of the Divine Trinity come to abide in us.
-
-但是在我们信祂，并且祂如今住在我们里面之后，我们就需要爱祂。
-But after we believe in Him and know that He is abiding in us, we need to love Him.
-
-在二十一和二十三节里，我们看见主要我们爱祂。
-In verses 21 and 23 we see the request of our love toward Him.
-
-我们或许是基督的信徒，但在我们中间有多少人是爱耶稣的人？
-We may be the believers of Christ, but how many among us are the lovers of Jesus?
-
-父这标的是在耶稣这化身里；这化身乃是在灵作祂的实化里，而这实化就是如今住在我们众人里面的那灵。
-The Father as the object is in Jesus as the embodiment, this embodiment is in the Spirit as His realization, and this realization is the very Spirit who is now abiding in all of us.
-
-但我们需要问：我们是否每日每时享受主耶稣向我们的显现？（李常受文集一九八八年第一册，四一七至四一八页）。
-But we need to ask whether or not we enjoy the Lord Jesus’ manifestation to us daily and hourly? (CWWL, 1988, vol. 1, pp. 315-316)
-
-参读：在神圣三一里并同神圣三一活着，第四章。
-Further Reading: Living in and with the Divine Trinity, ch. 4
-
-二〇二六年三月国际长老及负责弟兄训练 - 第 6 周 晨兴圣言 - 第 1-2 页
-Int’l Training for Elders and Responsible Ones (March 2026) - Holy Word Morning Revival - Week 6 - Pages 1-2
-
-20260720
+20260721
 smdj第11
 第十一篇　有分於基督的交通------------------------------------------- 
 讀經：哥林多前書一章二節，九至十三節。
@@ -219,4 +96,107 @@ smdj第11
 
 我願鼓勵你們眾人尋求經歷並享受神兒子的交通。我們越共同有分於這交通，對此越有享受，召會生活就越美好。我們在家裡，在聚會中，都需要享受這交通。這樣，我們就不會被意見、閒談、或不同的教訓所摸著，因我們不會在意別的，只在意實際的共同享受包羅萬有的基督；祂對我們是那靈、復活、和三一神。這交通就是召會的實際。因此，我們必須尋求一直經歷這交通；這樣我們就會在召會中享受基督。
  ------------------------------------------- -------------------------------------
+第六周·周二
+Week 6 — Day 2
 
+晨兴喂养
+Morning Nourishment
+
+约十六 13 ～ 15“只等实际的灵来了，祂要引导你们进入一切的实际；因为祂不是从自己说的，乃是把祂所听见的都说出来，并要把要来的事宣示与你们。祂要荣耀我，因为祂要从我有所领受而宣示与你们。凡父所有的，都是我的…。”
+John 16:13-15 But when He, the Spirit of reality, comes, He will guide you into all the reality; for He will not speak from Himself, but what He hears He will speak; and He will declare to you the things that are coming. He will glorify Me, for He will receive of Mine and will declare it to you. All that the Father has is Mine…
+
+我们可能在早晨花时间与主在一起，享受祂的显现，但后来我们可能对我们的配偶不高兴，而失去了主向我们的显现。
+In the morning we may have had a time with the Lord to enjoy His manifestation, but later we might become unhappy with our spouse and lose the Lord's manifestation to us.
+
+但这并不是说，我们失去了住在我们里面的那灵。
+This, however, does not mean that we have lost the abiding of the Spirit within us.
+
+有些基督徒觉得，当他们失去了耶稣的显现时，他们就失去了他们的救恩；但这是不对的，因为那灵是一直住在信徒里面的。
+Some Christians feel that when they lose the manifestation of Jesus, they have lost their salvation, but this is not true, because the Spirit always abides in the believers.
+
+那些相信他们可能失去他们救恩的人，事实上乃是相信“升降电梯式的救恩”。
+Those who believe they can lose their salvation actually believe in "elevator salvation."
+
+…但我们的救恩…乃是“楼梯”，我们绝不能从其上被挪去。
+…Our salvation, however, is…a "stairway," from which we can never be removed.
+
+我们虽然已在这楼梯上，我们仍要享受这楼梯最高部分的福分。
+Although we are on this stairway, we want to enjoy the blessing of the top part of the stairway.
+
+…这就是为什么我们需要爱主耶稣，并且说，“主耶稣，我爱你。”
+…This is why we need to love the Lord Jesus and say, "Lord Jesus, I love You."
+
+当我们爱祂时，我们就被带到顶层。然后我们就看见诸天之上的一切（李常受文集一九八八年第一册，四一八至四一九页）。
+As we love Him, we are brought up to the top floor. Then we see everything in the heavens. (CWWL, 1988, vol. 1, "Living in and with the Divine Trinity," p. 304)
+
+信息选读
+Today's Reading
+
+当我们爱祂的时候，不仅祂的灵住在我们里面，祂自己也亲自向我们显现。
+When we love Him, not only does His Spirit abide in us but also He Himself will manifest Himself to us.
+
+这意思是说，当我们与所爱的那一位交通时，我们有祂的同在。
+This means that we have the presence of the One whom we love in our fellowship with Him.
+
+如果我们爱耶稣，耶稣就爱我们，父也爱我们。
+If we love Jesus, Jesus loves us, and the Father loves us also.
+
+当子亲自向我们显现时，父就与祂同来，同我们安排住处，与我们同住。
+When the Son manifests Himself to us, the Father comes with Him to make an abode with us, to stay with us.
+
+我们需要更多被带到子向我们的显现里，有父与子同我们安排住处。
+We need to be brought more and more into the manifestation of the Son to us, with the Father and the Son making an abode with us.
+
+我们需要借着爱主，而在主救恩的楼梯上往上去。然后主会亲自向我们显现，父与子会同我们安排住处，作我们的享受。
+We need to go up the stairway of the Lord's salvation by loving Him. Then He will manifest Himself to us, and the Father and the Son will make Their abode with us for our enjoyment.
+
+神圣三一向着信徒的神圣传输，启示于约翰十六章十三至十五节。
+The divine transmission of the Divine Trinity to the believers is revealed in John 16:13-15.
+
+这个传输就像电流的传输。当电的开关接上时，就有了电流，就是电的流动，那个流动就是传输。
+This transmission is just like the transmission of electrical current. When the electricity is switched on, there is a current of electricity, a moving of electricity, and that moving is the transmission.
+
+第一，凡父所有的，都是子的（15）。这意思是说，父所有的都传输到子里。
+First, all that the Father has is the Son's (v. 15). This means that what the Father has is transmitted into the Son.
+
+第二，凡子所有的，都由那灵领受（14 下）。这是这个传输的更进一步。父传输给子，然后又有从子到那灵的传输。
+Second, all that the Son has is received by the Spirit (v. 14b). This is a further step of this transmission. The Father transmits to the Son, and then there is a transmitting from the Son to the Spirit.
+
+第三，凡那灵从子所领受的，都向信徒宣示出来（13、15 下）。
+Third, all that the Spirit has received of the Son is disclosed to the believers (vv. 13, 15b).
+
+最后，凡神圣三一的所是和所有，都是我们的。
+Eventually, all that the Trinity is and has is ours.
+
+诗歌三百八十二首第三节说到这个传输。这一节说，“凡父所有全由你承，凡你所是都归于灵；灵进我灵作你实际，使你成为我的经历。”
+Stanza 3 of Hymns, #501 talks about this transmission. This stanza says, "All things of the Father are Thine; / All Thou art in Spirit is mine. / The Spirit makes Thee real to me, / That Thou experienced might be."
+
+…凡父所有的，都是子的，凡子所是的，都已经由那灵领受，然后那灵向我们宣示凡祂从子所领受的。
+…Whatever the Father has is the Son's, whatever the Son is has been received by the Spirit, and then the Spirit discloses to us whatever He has received of the Son.
+
+这个传输是从父达到子，从子达到那灵，再从那灵达到我们。这就是神圣三一的行动（李常受文集一九八八年第一册，四一九至四二二页）。
+This transmission is from the Father to the Son, from the Son to the Spirit, and from the Spirit to us. This is the move of the Divine Trinity. (CWWL, 1988, vol. 1, "Living in and with the Divine Trinity," pp. 304-306)
+
+我们的神是三一神，为着把祂自己作到我们里面。
+Our God is triune for the purpose of working Himself into us.
+
+祂是父，是整个的大西瓜；祂是子，被切成块；祂是灵，被压成汁。
+He is the Father, the whole "melon." He is also the Son, being "cut into pieces." He is also the Spirit, being "pressed into juice."
+
+大西瓜要进到人里面，必须经过一步步的过程，这一步步就是分赐的过程。
+In order for a big melon to enter into man, it must pass through all these processes. These steps are the stages of the dispensing.
+
+不仅分赐，大西瓜还要在人里面消化、吸收，成为人的组成。
+Not only does the melon need to be dispensed, but it must also be digested and assimilated into the constitution of man.
+
+照样，父、子、灵三一神经过了种种过程，成为赐生命的灵，也是为着让我们喝进去，作我们的成分。
+In the same way, the Triune God—the Father, the Son, and the Spirit—has been processed to become the life-giving Spirit so that we can drink Him and so that He can become our element.
+
+这就是神圣三一的神圣分赐（李常受文集一九九○年第三册，四五四页）。
+This is the divine dispensing of the Divine Trinity. (CWWL, 1990, vol. 3, "A Deeper Study of the Divine Dispensing," p. 357)
+
+参读：关于神圣分赐更深的研读，第一篇。
+Further Reading: CWWL, 1990, vol. 3, "A Deeper Study of the Divine Dispensing," ch. 1
+
+二〇二六年三月国际长老及负责弟兄训练 - 第 6 周 晨兴圣言 - 第 4-5 页
+Int'l Training for Elders and Responsible Ones (March 2026) - Holy Word Morning Revival - Week 6 - Pages 4-5
